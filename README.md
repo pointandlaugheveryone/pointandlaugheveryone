@@ -1,1 +1,2 @@
-Well I can't really call myself a "developer BUT-
+Well I can't really call myself a "developer"...
+BUT-
