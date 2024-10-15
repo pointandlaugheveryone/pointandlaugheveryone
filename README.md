@@ -1,1 +1,1 @@
-Just starting out, don't look at me like that!
+Well I can't really call myself a "developer BUT-
